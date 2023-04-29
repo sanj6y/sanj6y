@@ -1,5 +1,4 @@
 ## Hi there!
-### Discord: Khowy#6545
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=sanj6y&label=Profile%20views&color=0e75b6&style=flat" alt="khosraw" style="height: 20px; width: auto;"/> </p>
 
